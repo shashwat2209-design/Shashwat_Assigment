@@ -1,2 +1,0 @@
-# Shashwat_Assigment
-Basic
